@@ -1,1 +1,0 @@
-# tokyo-olympic2020.github.io
